@@ -5,7 +5,7 @@
 <br />
 ![gif示例图](https://chengxu.xyz/upload/image/20230810/1691638827922884.gif)
 <br />
-本文发表自: https://aardio.com.cn/t/21472 和 https://chengxu.xyz/t/21472 <br />
+本文发表自: https://chengxu.xyz/t/21472 <br />
 
 
 
